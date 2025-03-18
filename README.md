@@ -1,6 +1,6 @@
 
 
-![glide](https://github.com/user-attachments/assets/aba612f9-1343-4fff-ac34-dd59344b9367)
+![glide-2](https://github.com/user-attachments/assets/7b1089e6-c227-42b4-b96e-7e91bd46ca0f)
 
 # Tawahod
 
